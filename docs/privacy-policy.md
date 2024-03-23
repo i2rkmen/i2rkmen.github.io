@@ -79,7 +79,3 @@ We reserve the right to revise this Privacy Policy at any time. Any changes will
 
 Contact Us
 If you have any questions or comments about this Privacy Policy or our privacy practices, please contact us at privacy@applicantus.com.
-
-Applicantus’s client:
-Applicantus’s client signature:
-Date:
